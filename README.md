@@ -1,3 +1,1 @@
-✧⁠◝ names are tord/kevin !! he/him.
-
-carrd ; https://jinxxednuts.carrd.co/
+girl is your favorite drink tubig because my heart is too big 4 u 😈🔥‼️‼️🐺
